@@ -1,4 +1,4 @@
-# [neocities ! ! !](https://seawattgaming.neocities.org/) ▄︻デ══━一 lol get rekt
+# [Info ^U^](https://seawattgaming.neocities.org/) 
 <p align="center">
    <img src="https://files.catbox.moe/ljl5el.png"  width="500" height="500" />
 </p>
