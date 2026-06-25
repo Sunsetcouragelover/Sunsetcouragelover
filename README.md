@@ -6,5 +6,5 @@
 
    
 <p align="center">
-  (check status byi)
+  ([rentries im trading](https://rentry.co/urlhavendotcom))
    </p>
