@@ -1,4 +1,4 @@
-# iwc <img width="20" height="20" alt="red-039" src="https://github.com/user-attachments/assets/658ec4ea-597c-4a18-b1fc-f5bbb5e30783" />
+# iwec <img width="20" height="20" alt="red-039" src="https://github.com/user-attachments/assets/658ec4ea-597c-4a18-b1fc-f5bbb5e30783" />
 
 > "Like hunting rabbit."
 
@@ -6,7 +6,7 @@
 
 hi um call me **S**unset or **J**ack , I am 14 years old
 
-**IWC** or just dont interact at all unless you're oomf because im full of hate and negativity and will lash out on you
+**IWEC** or just dont interact at all unless you're oomf because im full of hate and negativity and will lash out on you
 
 If you **IDENTIFY** as something **HARMFUL** plz dni if you can uhm thanks !!!!! ◝(ᵔᗜᵔ)◜
 
